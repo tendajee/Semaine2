@@ -1,2 +1,2 @@
 # Semaine2
-https://www.codecademy.com/users/dora92/achievements
+https://www.codecademy.com/dora92
